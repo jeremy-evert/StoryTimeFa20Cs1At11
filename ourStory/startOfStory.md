@@ -6,7 +6,7 @@ Please add to this as you would like.
 
 Serenity
 
-Charles
+Charles:
 I'm am adding important information to this story.
 My part is the best part.
 
