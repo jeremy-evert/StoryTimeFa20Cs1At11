@@ -10,7 +10,7 @@ Charles:
 I'm am adding important information to this story.
 My part is the best part.
 
-Arianna
+Arianna - 21yo female, brown hair blue eyes, looking for love in a lonely world
 
 Jared
 
