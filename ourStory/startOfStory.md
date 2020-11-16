@@ -4,13 +4,14 @@ We hope you have some fun here.
 
 Please add to this as you would like.
 
-Serenity
+Serenity:
+vbadih gri griap
 
 Charles:
-I am adding important information to this story.
+I'm am adding important information to this story.
 My part is the best part.
 
-Arianna - 21yo female, brown hair blue eyes, looking for love in a lonely world
+Arianna
 
 Jared
 
